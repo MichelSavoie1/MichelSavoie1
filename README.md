@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MichelSavoie1
+- 👀 I’m interested in Financial Technologies, futurism, travel, sailing.
+- 🌱 I’m currently learning all the time.
+- 💞️ I’m looking to collaborate on things.
+- 📫 How to reach me ... michel.savoie@finaptic.com
